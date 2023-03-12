@@ -5,6 +5,7 @@
 ## 阿里云盘
 
 * [抖音动画教学](https://www.aliyundrive.com/s/EZfWm2VvMWs) - "抖音副业-动画教学，素材全套"
+* [混沌-颠覆式创新](https://www.aliyundrive.com/s/dnbPNGpzAP3)
 
 
 ## 汽配资源
